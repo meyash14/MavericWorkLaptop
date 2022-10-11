@@ -1,2 +1,0 @@
-RT PCR
-BAGGAGE
